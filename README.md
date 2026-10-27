@@ -221,4 +221,4 @@ Worms Reloaded is available for **free download** with all features and updates 
 Ready to join the chaos? **Download Worms Reloaded free today and unleash your strategic prowess!**
 
 ---
-**Last updated:** 2026-10-27 14:11:16 UTC
+**Last updated:** 2026-10-27 19:55:37 UTC
